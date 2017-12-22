@@ -1,0 +1,1 @@
+# Windows-8.1-64Bits-s-reconhece-1-78-GB-de-RAM-de-4GB-de-RAM.
